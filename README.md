@@ -26,10 +26,10 @@ You have the right to:
 ●	Correct inaccuracies in your data.
 ●	Request deletion of your data (where applicable by law).
 ●	Withdraw consent for data processing.
-To exercise these rights, contact us at: olr1225@gmail.com.
+To exercise these rights, contact us at: xwiztrader@gmail.com.
 6. Changes to This Privacy Policy
 We may update this Privacy Policy from time to time. We will notify you of significant changes by posting the new version in the App or on our website.
 7. Contact Us
-If you have any questions or concerns about this Privacy Policy, please contact us at: olr1225@gmail.com.
+If you have any questions or concerns about this Privacy Policy, please contact us at: xwiztrader@gmail.com.
 
 
